@@ -1,2 +1,0 @@
-# Portafolio
-Descripcion sobre mi
